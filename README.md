@@ -1,3 +1,5 @@
+![banner](media/banner.jpeg)
+
 ## Hi there 👋
 
 <!--
