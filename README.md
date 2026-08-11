@@ -18,4 +18,3 @@
 - Discord: [(тык)](https://discord.com/users/587531280871194624)
 - ТГК(шитпост): [(тык)](https://t.me/s/thisisisan)
 
-Да...
