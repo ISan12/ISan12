@@ -14,9 +14,3 @@
 ## 📞 связаться?
 а вы уверены, что это лучшая идея?
 
-
-я существую здесь:
-- Telegram: [(тык)](https://t.me/wdbluesatassd2tb3dnandsoliddrive)
-- Discord: [(тык)](https://discord.com/users/587531280871194624)
-- ТГК(шитпост): [(тык)](https://t.me/s/thisisisan)
-
